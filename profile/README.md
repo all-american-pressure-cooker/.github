@@ -11,7 +11,7 @@
 
 <p>The <strong>All American Pressure Cooker</strong> is a top choice for those who need a durable, high-quality pressure cooker. Known for its heavy-duty aluminum construction and precision cooking, it is ideal for home canning and large meal preparation.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/3Xwp7Oz)
+[**✅ Buy Now at Amazon**](https://amzn.to/3Xwp7Oz)
 
 <h2>Why Choose an All American Pressure Cooker?</h2>
 
@@ -27,7 +27,7 @@
     <li><strong>Safety Features</strong>: Includes an overpressure safety plug and automatic overpressure release for safe operation.</li>
 </ul>
 
-[**✅ Buy No at Amazon**](https://amzn.to/3Xwp7Oz)
+[**✅ Buy Now at Amazon**](https://amzn.to/3Xwp7Oz)
 
 <h2>Pros & Cons of the All American Pressure Cooker</h2>
 
